@@ -1,3 +1,16 @@
+https://www.lexreception.com/#intro_section
+ไม่ว่าบริษัทของคุณจะมีขนาดเท่าใด LEX ก็มอบอิสระในการฝึกฝนให้กับคุณ
+![17379728684782063904526461971699](https://github.com/user-attachments/assets/d37b1b38-0832-45b2-bd97-552c08c055e8)
+https://www.lexreception.com/พบกับ LEX-
+ไม่พลาดการโทรด้วยบริการรับสายจากผู้เชี่ยวชาญสำหรับทนายความ-
+
+Uploading lex-home-preview.mp4…
+
+![lex-logo-primary](https://github.com/user-attachments/assets/4264ac99-02ef-4120-9764-b440295730fa)
+
+https://github.com/user-attachments/assets/70ea96f3-5193-434d-a468-16edc64f9135
+
+
 <img width="148" alt="quickdraw-default-39c6aec8ff89" src="https://github.com/user-attachments/assets/9b74f677-55de-46c7-ac42-9878cd14fa81" />
 [สารานุกรม - วิกิพีเดีย.pdf](https://github.com/user-attachments/files/18540012/-.pdf)
 [MEDIUM_LEX-LEX2.zip](https://github.com/user-attachments/files/18540010/MEDIUM_LEX-LEX2.zip)
