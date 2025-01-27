@@ -15,7 +15,7 @@ https://github.com/user-attachments/assets/70ea96f3-5193-434d-a468-16edc64f9135
 [สารานุกรม - วิกิพีเดีย.pdf](https://github.com/user-attachments/files/18540012/-.pdf)
 [MEDIUM_LEX-LEX2.zip](https://github.com/user-attachments/files/18540010/MEDIUM_LEX-LEX2.zip)
 
-
+https://youtube.com/@lekjorasa2166?si=ZvEIynq0FKyIGrdM
 https://github.com/user-attachments/assets/81ad222f-da57-4960-98f8-aa5b714b18fd
 
 [chart.csv](https://github.com/user-attachments/files/18540005/chart.csv)
