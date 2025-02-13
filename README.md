@@ -1,3 +1,6 @@
+https://docs.github.com/en/copilot/managing-copilot/managing-github-copilot-in-your-organization/setting-policies-for-copilot-in-your-organization/excluding-content-from-github-copilot![Uploading Banner_10HitMusic45Min.jpg…]()
+![flexstation](https://github.com/user-attachments/assets/eb797d97-616f-491b-9102-2641f6fe2275)
+
 https://www.google.com/url?sa=t&source=web&rct=j&opi=89978449&url=https://th.wikipedia.org/wiki/%25E0%25B8%259B%25E0%25B8%25A3%25E0%25B8%25B0%25E0%25B9%2580%25E0%25B8%2597%25E0%25B8%25A8%25E0%25B9%2584%25E0%25B8%2597%25E0%25B8%25A2&ved=2ahUKEwipzuWGqsGLAxWBVPUHHaRFCTUQmhN6BAgeEAg&usg=AOvVaw0F5DDdgwlEF5h5Ib58ueyO
 
 
