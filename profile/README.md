@@ -1,3 +1,5 @@
+https://www.flexconnect.net/![Banner-300x250-1](https://github.com/user-attachments/assets/945ec366-822d-4456-97f0-462d405c480e)
+
 https://www.lexreception.com/#intro_section
 ไม่ว่าบริษัทของคุณจะมีขนาดเท่าใด LEX ก็มอบอิสระในการฝึกฝนให้กับคุณ
 ![17379728684782063904526461971699](https://github.com/user-attachments/assets/d37b1b38-0832-45b2-bd97-552c08c055e8)
